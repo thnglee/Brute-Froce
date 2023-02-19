@@ -1,1 +1,1 @@
-brute force ur gmails, have fun !
+brute force
